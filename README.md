@@ -5,7 +5,6 @@ Soy de donde se hace la carnita asada namas porque si 🥩🤠, me gusta mucho p
 ## Contacto 📫
 Puedes encontrarme en mis redes sociales:
 
-- [Instagram](https://www.instagram.com/h__guerrero/)
-- [TikTok](https://www.tiktok.com/@h_guerrero)
 - [Twitch](https://www.twitch.tv/h_guerrero)
-
+- [TikTok](https://www.tiktok.com/@h_guerrero)
+- [Instagram](https://www.instagram.com/h__guerrero/)
